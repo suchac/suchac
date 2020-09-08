@@ -3,7 +3,7 @@
 
 - 🔭  I’m currently working on: [ROI Hunter a.s.](www.roihunter.com)
 
-- 📫  How to reach me: **www.petrsuchy.com**
+- 📫  How to reach me: **info@petrsuchy.com** or **www.petrsuchy.com**
 
 - ⚡  Fun fact: **Maté over Coffee**
 
